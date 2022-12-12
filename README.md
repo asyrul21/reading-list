@@ -118,14 +118,16 @@ Due to personal and moral reasons, some books are excluded from the list.
 
 17. Turning Pro: Tap Your Inner Power and Create Your Life's Work (Steven Pressfield)
 
-18. Eat that Frog! (Brian Tracy)
+18. The War of Art: Break through the Blocks and Win You Inner Creative Battles (Steven Pressfield)
 
-19. Who Moved My Cheese? (Dr. Spencer Johnson)
+19. Eat that Frog! (Brian Tracy)
 
-20. Built to Last: Successful Habits of Visionary Companies (Jim Collins and Jerry I. Porras)
+20. Who Moved My Cheese? (Dr. Spencer Johnson)
 
-21. No Rules Rules: Netflix and Culture of Reinvention
+21. Built to Last: Successful Habits of Visionary Companies (Jim Collins and Jerry I. Porras)
+
+22. No Rules Rules: Netflix and Culture of Reinvention
 
     - Comprehensive Summary Available: reach out to obtain
 
-22. _Title Confidential_ (Nir Eyal)
+23. _Title Confidential_ (Nir Eyal)
